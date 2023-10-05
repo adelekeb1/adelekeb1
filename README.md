@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on crypto currency
 - 🌱 I’m currently learning coding
-- 👯 I’m looking to collaborate on bitberry
+- 👯 I’m looking to collaborate on mimbo
 - 🤔 I’m looking for help with work
 - 💬 Ask me about cool and humble 
 - 📫 How to reach me: john.lana978@gmail.com
